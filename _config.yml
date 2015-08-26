@@ -72,6 +72,9 @@ gems:
 paginate: 10
 paginate_path: "blog/page:num"
 
+#excerpt
+excerpt_separator: "<!-break->"
+
 # Exclude these files from your production _site
 exclude:
     - Gemfile
