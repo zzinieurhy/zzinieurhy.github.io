@@ -1,6 +1,8 @@
 ---
 layout: post
+title: 유빈이 아빠랑 highland park 눈 산책
 ---
+
 
 그런 유빈이에게 미안했던 아빠.
 

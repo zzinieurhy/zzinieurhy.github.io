@@ -1,6 +1,8 @@
 ---
 layout: post
+title: Children's Museum of Pittsburgh
 ---
+
 
 오전부터 일찍 준비해서 
 

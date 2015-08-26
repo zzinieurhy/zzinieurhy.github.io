@@ -1,6 +1,8 @@
 ---
 layout: post
+title: Children's museum, Ross Park mall
 ---
+
 
 오늘은 물놀이 부터 하자고 맘 먹고 3층으로 고고~
 

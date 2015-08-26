@@ -1,6 +1,8 @@
 ---
 layout: post
+title: Bd's Mongolian Grill
 ---
+
 
 엄마가 한국으로 가시기 전 날
 
