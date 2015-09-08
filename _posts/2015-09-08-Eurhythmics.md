@@ -16,7 +16,7 @@ __유리드믹스__에서 __'유(Eu)'__는 __'좋다(Good)'__ 라는 뜻이고, 
 
 더 자세한 내용을 아시고 싶으면 
 
-https://en.wikipedia.org/wiki/Dalcroze_Eurhythmics
+(https://en.wikipedia.org/wiki/Dalcroze_Eurhythmics)[https://en.wikipedia.org/wiki/Dalcroze_Eurhythmics]
 
 이 링크를 들어가 보세요 ^^
 
