@@ -57,6 +57,8 @@ __유리드믹스__에서 __'유(Eu)'__는 __'좋다(Good)'__ 라는 뜻이고, 
 
 ![](https://dl.dropboxusercontent.com/u/9792864/IMG_6968.jpg)
 
+(더 많은 사진들은 [여기](http://blog.cyworld.com/zzinieurhy))
+
 ---
 
 이정도의 설명이면 유리드믹스에 대해 이해가 되셨는지 모르겠네요 ^^
