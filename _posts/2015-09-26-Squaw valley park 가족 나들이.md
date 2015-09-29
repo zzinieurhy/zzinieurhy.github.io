@@ -30,8 +30,6 @@ title: Squaw valley park 가족 나들이
 
 요구해서 받아내고 인증샷.
 
-(코끼리는 먹느라 못 찍음 ㅎ)
-
 ![](https://lh3.googleusercontent.com/eiZ3Qlj7C5Fhh6RMxNxFljgG0AsFuk1FOaeg5P_nBHH2GdZu6iQsClZUDL2EspghPL7U0Q4myTOHskFmFfyJEQTFQsAvspmhsy5DUUYAHidMlIrDtsPgzVHR6tG7-zUUJstn3FMGjoGuMgn3UjruthiG215-pHyenCubVX5BTGAAl_VsIf3xKJyLdgrMKla8sSaDXtu5Kz3bmh4g52_cLYLWauVESj6yNKk1Cjn8R0u35RvYET5P0NURP41VhxMnKIsyh56yztj6VbnldIWgBdjmaNOiH6y_XrRUo3AN1n1caN5pdbfa86Hx_A7-Olq788Gaiau2nxYeFLMYGdtQNod24361lQxpbEI5iVkRAiFJdc8oABCL_I_UsYtgK3uto2bE7aKhTTHW8k-RMPiZHUw-DjBv5JkgXVnY0AsclgMiuyJILizR5aJsrbtx_d6bemMtZtqPfIEn5iJHxxJKpA05q2eGPTfyBMlvmMW0nrm7eANzgsFLXDbA-ysOJNpVHbSxsQlTCirTPaaOsFgmQlmAPZspjrFMQcq2GwABwfAq=w986-h1313-no)
 
 ![](https://lh3.googleusercontent.com/fZMKtoJeDdDA-SP725wXMNUk-RmanWdW10RATZezarltmMfpYeDEAeUHg_Ss2FSv8hBiO898gwayP4YyEJwtLhgYuOCYhQjsGx0oWLKtS44CmNIwnOgJJK-otoRmPEJWWKSe5ovua2Vd4hpMtWJE4yjFLKnTuWnWtF2TqVcbyLHGQxNx0guoJRdXOJXgFNMA-SQl0zR8tde79EP6Q9aKgmsdo0RDv2StwXsL7TgPRaom6fi-c5dKEQMQQS4OZCHrxCW2_On_1XNbiep0pnU-m0nC2yXsGcKNTEn7Dtq2XosmXELFA3Y_ZV58k4wQe_WNgZlQfwhF0x1KJTAMBjs-NlSP3IurWHQxlYK21qcRnL109QOwcXkkO07ABgYRd0r4nYvDQDeZM6Gnnkx58x-xR3qQok8lvQb9WJVfCoPrpYMiJQvqxeXsswrJfcMNy7kcRZFm6BgHqr70lCrtLtIcqq-ZQ46iY2yl91GQt6TDc1ZqiOhRictt6lOdKOA14VGMXSuU6pHIBEVJygKwA7YjqvkLfBU6_Wyjela3J2AFXuaK=w986-h1313-no)
@@ -47,6 +45,14 @@ title: Squaw valley park 가족 나들이
 ![](https://lh3.googleusercontent.com/tondm1bkg6TsdG2X18EA8Kpzvnn56Ohz5ajaXXRv13DHFQzXeh48La70KqX4UTzx5B0OQtba8DoNzbsIZ9wbbAkclGScSG_tVP8gpZqBZKHGIx7yWK3ltpU2GgE3lqCb-r95-j9F9AESPm7j6_ahs3wf-S9mxa24WQjbJM6PUT-Lu-azELgh-znFeDGNI0gE1F78JUSjs9erg_VaMTmAvE1k85DaqZ1PcoOaycGHkMZXplDK3iNTZDWzDp5z6vFio7Z8-uOs4zA7WnZgHfprU84zlYlY7uZqMQaFM5U-ECH8iWfRJNSx5jTQeIvQartY220f7aZvO0qdSD0OP7R2i5M1xuMKhePMehfqAN-om_04xftEQkvWS2tAifzXlw-GGyhAqd93vUWGo26QWIdim8lFKabXzC8ghc2JpxtBVKSJbhOZH7ld0w_VrjsWgLnLyBx5SfWD5eev5Io5SzEipIURaaRTHjMD8pNjALpAU1PZOsdiQWrHV3c0H5iJ5NqfCkZcJI6cedBwtCegW5-cWI83xrg9oi43sY_TXWy6oraT=w986-h1313-no)
 
 ![](https://lh3.googleusercontent.com/PxWP0VuRZ_vNXAubXR-z9qXtgnDUx31TWwwGAZEa7z6TfriCxO8fkC4MFcpY9zoLmvqcn0wp18dOCheSJnlvYLLFWVqLMXC5bfHlp8NtJiAxW7phyCceBXv04AJR3kqljGfEvhh3V97VnmaH58ybweRHzwE9T094mYJRW6-_Xpk_uypA70jki2OS4-dDnMmk2F1-uAiIfQirMPUFlBdIOayApr-rteYpTQFWZwk2vlY9OobjxBSjbHjXD2PaztQoU4Sl6Gs1Urv6ZfOgDV4G66JXxmDQrUG4y5YHTsqsvwJCVKPHZ5zkEANUuUvfN7kUAzvCzQ2Q_GouqBXmGdylN-Cj2NAiaDxYyqc2w4MJNOGfIzmC8hNUTg195kK7xj46Pk1snVkpToPrvYm2ow1dgi_bclR4kMILptP7IKpSw9paX8W7zIGcy1Bi90VecKuAeDwZLxY9Ak58dlE3czcToQwOs53xKzibH3656nVgWlrLxHMLL14WXAqFqhvisivGkOo6wWsbCGYdk7X6EbDCOi2tJbsjesuxKsLn0fIZSdf2=w986-h1313-no)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_132728.jpg)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_132731.jpg)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_132735.jpg)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_132739.jpg)
 
 이렇게 신나게 풍선 선물 받고
 
@@ -64,11 +70,25 @@ title: Squaw valley park 가족 나들이
 
 나와서 그늘에 앉아 한 잠 자고,
 
-모래놀이도 하고, 놀이터도 가고, 호수도 봤는데
+모래놀이도 하고, 
 
-사진 한 장 안 찍고 ㅋ
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_151509.jpg)
 
-마지막 코스 냇가에 가서만 사진 찰칵!
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_151515.jpg)
+
+놀이터도 가고, 
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_153507-ANIMATION%20%281%29.gif)
+
+호수도 보고 ^^
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_153956.jpg)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_154015.jpg)
+
+![](https://dl.dropboxusercontent.com/u/9792864/150926%20Squaw%20valley%20park%20%EA%B0%80%EC%A1%B1%20%EB%82%98%EB%93%A4%EC%9D%B4/IMG_20150926_154022.jpg)
+
+마지막 코스 냇가에 가서도 놀고 ~
 
 ![](https://lh3.googleusercontent.com/Oiy5M6Fqsdk_Ihn5vzO8124C3QMxADA4qE5-FlLTLC0mj4S1HZtx_4tzftA68x9rqlrOYcEu8HxX0w3u-gP4fRejUGdpAYJWIaPZJAK7vMsF53FLl6GNZ7JuHKOu_fJYWg480irDSiFberl3RE8MBHb9juGqfPsly4lgwG8ksE-nsQ6gV3C6cS-LVOkaHVfEJzpKWbdOE0o-j_drdjnrzCezYKhsTwdq-2IQQYoG1FG2DevLG0gSUmI8UxGOXxTBfarclB5FhfYlpzXMNm7coBzb6R_dVagQKZdUjiPhsKMMvGWPKtfsY1SoRvNRixMzoJ4ptvTA2p-4XSJyXeME8eh-F1nW8M3-daP_mWOkK0ety0hI1qryLifAlqNrTaDYnS5BUQ20ynCc-El0c2p0FHCNRurIXmCiwyW8CVnvs2IqFxYJuNDPsWUlqZG7HH8wYD8SjR2Kp2AGSNLVg6YQWU01h3lnygiXwvxZLbvusOME5vP_QVsdmkoO6avRaXHMdBQvqKsYaJfZAM441Hw5qebpocqobzTz3tHRmFRzfOxA=w986-h1313-no)
 
@@ -80,13 +100,10 @@ title: Squaw valley park 가족 나들이
 
 ![](https://lh3.googleusercontent.com/_zOe_LjHRivJO10572zUC3OwtLcRzJH7dNu6M1Hrl-nFSiiJ6odKVcSA4kKesCx_6WEDPUpgldbllCjAZ8xr2WbTdE1hIxQ6awDdxccQvcRqnsEUjEVA_6J_0Bh3IHv5LlyfjjCkgmwhYJILJtsknmEZ6zf3CFooQ5xFMf_SeZV757p5JWS-oRZp8p6Fsp2fVzZL0HBcZ7s96FnCzjZXwMn7vBkei45c-P2Ran1L1gHHwB8BZOAaGOFjO57KyHE7yyIQtYAlr5QLuYEYyy9o8nDgE5ElR1CeA-Y9GLnQc0_OhjAHw5noF78rdwF97ApPzTDfUK4Z9-hrLRoluoLks-fD4lcsby2NH36ScHRtTomedrfNKzqsRw3bbnBdRFCCN6NxVsWWkXWwW1OVBlCBRu00RctuvOT2wEQcyqFTGI33aXri5Ho-evBD08L3ED7L79QPLe0HGofOnrS-ibqegewSp4De0M0EVoLQRGMi7ye50OKWEDNRMmu8kV7kdpANF4MjeqRg05wnfTBX6Sqvx_bWvdbkXsRHMV7h93BzaJuS=w2067-h929-no)
 
-마지막으로 
-
-울 아들 냇가에서 신나게 노는 동영상으로 
-
-블로그 일정도 마무리 ^^
 
 <iframe width="420" height="315" src="https://www.youtube.com/embed/vdGT4-2T3QE" frameborder="0" allowfullscreen></iframe>
+
+이렇게 알차게 2시간 넘게 놀고 집으로 돌아온 우리 ~
 
 이 공원은 앞으로 자주 올 듯.
 
