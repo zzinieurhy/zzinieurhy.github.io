@@ -4,6 +4,12 @@ title: 지나랑 Pittsburgh mills 데이트
 ---
 ===
 
+오늘 아침 유빈군의 일찍 눈뜨기 신공으로 인해
+
+살짝 피곤했던 난 유빈군을 살짝 방치해 두고
+
+멀리서 아들램을 지켜보기로 했다.
+
 ![](http://2.bp.blogspot.com/-G7irDhugaZg/VNGJsqHQrVI/AAAAAAAAHZ8/OUq-L95esHE/s1600/20150203_085831.jpg)
 
 울 아들. 아침 일찍 일어나 신문보는 아좌씨처럼
@@ -27,7 +33,6 @@ title: 지나랑 Pittsburgh mills 데이트
 양말에 샌들신기! 뜨악!
 
 ![](http://cfile216.uf.daum.net/image/274E433752E23CA234617E)
-
 
 그래도 장하다. 어느덧 이리 커서 홀로 신발을 신기도 하고.
 
@@ -53,46 +58,37 @@ title: 지나랑 Pittsburgh mills 데이트
 
 ![](http://2.bp.blogspot.com/-LwGpkX-GdFU/VNGJrfY6ooI/AAAAAAAAHZg/U6WLSg5k3Vs/s1600/1423002062185.jpeg)
 
-
 ![](http://1.bp.blogspot.com/-06nGLNt53QY/VNGJvWe685I/AAAAAAAAHag/ldVni12AypE/s1600/DSC03008.JPG)
-
 
 ![](http://2.bp.blogspot.com/-RwHW3lOz-uE/VNGJwSYMxII/AAAAAAAAHbA/SicH9fl1cnE/s1600/DSC03011.JPG)
 
-
 ![](http://1.bp.blogspot.com/-WnmH4l331EQ/VNGJwvufPjI/AAAAAAAAHbE/m9zh1NlM1lI/s1600/DSC03012.JPG)
-
 
 ![](http://4.bp.blogspot.com/-Sfroqd7rJGw/VNGJwhrxv1I/AAAAAAAAHbM/AugoIDtPTcs/s1600/DSC03013.JPG)
 
-
 ![](http://3.bp.blogspot.com/-tkt2gdL3UlM/VNGJyA4oIFI/AAAAAAAAHbw/_4wmP4WYDu0/s1600/DSC03017.JPG)
-
 
 ![](http://2.bp.blogspot.com/-kq_rjRAV9r0/VNGJyQUCb9I/AAAAAAAAHb4/7N3MKl9nKy8/s1600/DSC03018.JPG)
 
-
 ![](http://2.bp.blogspot.com/-ytu4EXe9Nb8/VNGJy58t5qI/AAAAAAAAHcI/UrU2aCku9A4/s1600/DSC03019.JPG)
-
 
 ![](http://3.bp.blogspot.com/-F8a-fSopj0k/VNGJzOh_VTI/AAAAAAAAHcE/pSHDeBm9Zcw/s1600/DSC03020.JPG)
 
-
 ![](http://2.bp.blogspot.com/-E5_dWoeDnXw/VNGJzetupZI/AAAAAAAAHcQ/TVws_oZDtiE/s1600/IMG_20150203_170945.jpg)
-
 
 ![](http://4.bp.blogspot.com/--uZAljPxHbA/VNGJzRbSsFI/AAAAAAAAHcM/uuq59GLMEhU/s1600/DSC03021.JPG)
 
-울 아들은 빈집털이. 지나는 망보는 처녀. 이 녀석들.. 잘..어..울...린...다.. ㅋㅋ
+울 아들은 빈집털이. 
+
+지나는 망보는 처녀. 
+
+이 녀석들.. 잘..어..울...린...다.. ㅋㅋ
 
 ![](http://4.bp.blogspot.com/--ErhviCJdCk/VNGJrKguEbI/AAAAAAAAHZk/9bAssWZnJ4w/s1600/1423002060204.jpeg)
 
-
 ![](http://4.bp.blogspot.com/-wjjiadgmzy8/VNGJq-UHnLI/AAAAAAAAHZY/HuR0fzLKKqE/s1600/1423002058225.jpeg)
 
-
 ![](http://3.bp.blogspot.com/-lxayuugfeho/VNGJqpC7fgI/AAAAAAAAHZM/igEsxclp80k/s1600/1423002055737.jpeg)
-
 
 ---
 
@@ -113,31 +109,23 @@ title: 지나랑 Pittsburgh mills 데이트
 
 ![](http://1.bp.blogspot.com/-hmR0_it5WxU/VNGJnYF6ZGI/AAAAAAAAHYU/Y5o4KN-iGTg/s1600/1423002034602.jpeg)
 
-
 ![](http://3.bp.blogspot.com/-J7L0lGWsXc0/VNGJnwdsoaI/AAAAAAAAHYM/qdTAeEmPh4A/s1600/1423002036582.jpeg)
-
 
 ![](http://2.bp.blogspot.com/-2X6tF8_kVc0/VNGJovariQI/AAAAAAAAHYc/DxH78Bcxxg8/s1600/1423002041483.jpeg)
 
-
 ![](http://3.bp.blogspot.com/-t2O3D2v2StM/VNGJpDiKeLI/AAAAAAAAHYk/OQtr9Nxq8ag/s1600/1423002044171.jpeg)
-
 
 ![](http://4.bp.blogspot.com/-SQi7QZRLw84/VNGJpUV2t3I/AAAAAAAAHYs/TnLOzOVMai8/s1600/1423002046379.jpeg)
 
-
 ![](http://4.bp.blogspot.com/-QgEQpf-DhqI/VNGJprxw_8I/AAAAAAAAHZ0/Rid22jw19K0/s1600/1423002049055.jpeg)
 
-
 ![](http://1.bp.blogspot.com/-efDzhxiSwWI/VNGJp5aX_-I/AAAAAAAAHY8/URek7Mu2wa0/s1600/1423002051111.jpeg)
-
 
 ![](http://3.bp.blogspot.com/-y5hIAVaRqGU/VNGJoHIHJ6I/AAAAAAAAHY0/nqQ_srRii-4/s1600/1423002039065.jpeg)
 
 괜찮아.. 사랑이야..
 
 ![](http://img.lifestyler.co.kr/uploads/vod/lifestyler_thumbnail/storyon/dramastory/dramastory_01.jpg)
-
 
 ![](http://3.bp.blogspot.com/-x2estY69BdE/VNGbUdxl8yI/AAAAAAAAHiA/fo5Xe7bmwHU/s1600/KakaoTalk_20150203_230558392.jpg)
 
@@ -151,7 +139,6 @@ title: 지나랑 Pittsburgh mills 데이트
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSqEifwutvnDct0Xl_-Q8oglzq91N7hA_R4StGErgXVgcFoWDro)
 
-
 ---
 
 심술난 엄마. 지나에게 삔을 꽃아주기 전
@@ -160,9 +147,7 @@ title: 지나랑 Pittsburgh mills 데이트
 
 ![](http://4.bp.blogspot.com/-b8gGAAxXm88/VNGJmpQ-tOI/AAAAAAAAHX4/qpJadQ4rLXU/s1600/1423002029836.jpeg)
 
-
 ![](http://2.bp.blogspot.com/-C0Kp8xezZ7o/VNGJm_OJ0kI/AAAAAAAAHX8/w1GDAozUXzw/s1600/1423002032138.jpeg)
-
 
 ---
 
@@ -179,9 +164,3 @@ H & M 으로 가서 고! 쇼핑!쇼핑! 을 하고
 ![](http://upload.inven.co.kr/upload/2014/05/19/bbs/i3441978442.jpg)
 
 
-
-
-
-
-
-
