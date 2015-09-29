@@ -4,6 +4,12 @@ title: Children's museum, Ross Park mall
 ---
 ===
 
+지나랑 현정이랑 데이트
+
+엄마는 엄마대로, 아가들은 아가들 대로 신났던 
+
+[Children's museum](https://pittsburghkids.org/)
+
 오늘은 물놀이 부터 하자고 맘 먹고 3층으로 고고~
 
 ![](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcR7L5Bj1ObAMgbmGXKMr7AP_eTZ4wr87WXnNDmEyXdCOC3feTog)
@@ -388,4 +394,4 @@ title: Children's museum, Ross Park mall
 
 헤어졌다. ^^
 
-
+
