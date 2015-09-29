@@ -4,8 +4,13 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 ---
 ===
 
-![](https://dl.dropboxusercontent.com/u/9792864/IMG_20150204_181729.jpg)
+아침 부터 먹방 강유빈 선생.
 
+핫도그를 드시며 
+
+"몰 찍어?" 하는 표정으로 어미를 쳐다 봐 주신다.
+
+![](https://dl.dropboxusercontent.com/u/9792864/IMG_20150204_181729.jpg)
 
 그 와 중에 어미는...
 
@@ -17,11 +22,9 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](https://dl.dropboxusercontent.com/u/9792864/C360_2015-02-04-09-27-42-914.jpg)
 
-
 인스타그램에 사진 두 장 투척 해 주시고.~
 
 ![](http://gamidang.com/data/cheditor4/1412/0abf7c43b6b0deaa189252e8acb955e7_V9XPfn9S5xDNT54DCncf2Aq8w5dDDCn.png)
-
 
 아침 시간을 어찌 어찌 보낸 후,
 
@@ -33,11 +36,9 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03022.JPG)
 
-
 그리고, 울 엄마표 부추 김치~
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03023.JPG)
-
 
 
 울 아들램께서는 짜장면은 마다하시고.
@@ -48,9 +49,7 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03024.JPG)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03026.JPG)
-
 
 그러던 중, 부추선생께서는.. 
 
@@ -60,14 +59,11 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03028.JPG)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03029.JPG)
-
 
 바로 그 곳에는.. 변함 없이. 부추님께서.. 계셨고..
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03030.JPG)
-
 
 이 후로도 계속 부추김치만 드신 우리 아들램,
 
@@ -87,14 +83,15 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](http://cfile201.uf.daum.net/C200x180/1468683E5160C39D1F39E9)
 
-
 ---
 
-수업 하러 급히 가던 중, 교회 주차장에서 괜히 수다 떨며 운전하다
+수업 하러 급히 가던 중, 
+
+교회 주차장에서 괜히 수다 떨며 운전하다
+
 차 뒷 눈 살짝 박살 내 주시고... 흑.
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03031.JPG)
-
 
 정신차려라. 우진희!!
 
@@ -112,35 +109,27 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03033.JPG)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03036.JPG)
-
 
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03037.JPG)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03038.JPG)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03040.JPG)
-
 
 ![](https://dl.dropboxusercontent.com/u/9792864/IMG_20150204_181750.jpg)
 
 간만에 남편 사진 투척
-![](https://dl.dropboxusercontent.com/u/9792864/IMG_20150204_181936.jpg)
 
+![](https://dl.dropboxusercontent.com/u/9792864/IMG_20150204_181936.jpg)
 
 ![](https://dl.dropboxusercontent.com/u/9792864/C360_2015-02-04-18-16-07-629.jpg)
 
-
 ![](https://dl.dropboxusercontent.com/u/9792864/DSC03049.JPG)
-
 
 정말 맛났다.
 
 ![](http://cfile22.uf.tistory.com/image/1371874D4F27C1DC2E9EEA)
-
 
 이 전에 우린 이 가게에 술은 먹지 않고, 밥만 먹으러 들어갔다가..
 
@@ -157,9 +146,3 @@ title: 유빈이의 먹방, Applewood Smoke Burger Company
 우린 집으로 돌아와 변함 없이 하루를 마감했다.
 
 
-
-
-
-
-
-
