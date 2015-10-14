@@ -10,4 +10,4 @@ title: 3 days in Pittsburgh
 
 (아래 사진 클릭!)
 
-[![](https://dl.dropboxusercontent.com/u/9792864/K-001.jpg)](https://photos.google.com/story/AF1QipMxsCGoGCq2QIYRbAEO5AO7S1i_SxFYKo4A5RPlob9ZLl1ESFLzbFSWNZLbK6Gwkw)
+[![](https://dl.dropboxusercontent.com/u/9792864/K-001.jpg)](https://goo.gl/photos/KiyHi5bTv498LZ8L8)
