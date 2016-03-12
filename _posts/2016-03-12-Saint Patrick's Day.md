@@ -52,7 +52,7 @@ title: Saint Patrick's Day
 
 이번엔 제대로 다시 한 번 더 가족 셀피
 
-![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06244.resized.JPG)
+![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06244.resized.rotated.JPG)
 
 십분도 안 봤는데 재미없다는 아들의 요구로 
 
