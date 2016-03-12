@@ -14,7 +14,7 @@ title: Saint Patrick's Day
 
 다운타운으로 향했다.
 
-![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06226.resized.JPG)
+![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06226.resized.rotated.JPG)
 
 ![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06227.resized.JPG)
 
