@@ -28,7 +28,7 @@ title: Saint Patrick's Day
 
 ![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06231.resized.JPG)
 
-![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06232.resized.JPG)
+![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06232.resized.rotated.JPG)
 
 온 가족 셀피를 시도했으나
 
