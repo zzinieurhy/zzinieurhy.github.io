@@ -22,7 +22,7 @@ title: Saint Patrick's Day
 
 ![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06229.resized.JPG)
 
-![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06230.resized.JPG)
+![](https://dl.dropboxusercontent.com/u/9792864/20160312%20Saint%20Patrick%27s%20Day/DSC06230.resized.rotated.JPG)
 
 아빠랑 아들 즐기고
 
